@@ -36,7 +36,7 @@ I’m always open to collaborating on projects and innovative ideas. Feel free t
 
 ## 🏅 Achievements
 
-- Chandrabhan Sharma College of Arts, Science and Commerce
+- Chandrabhan Sharma College of Arts, Science and Commerce from Mumbai
 - The Minor in Artificial intelligence from IIT Ropar
 
 Thanks for visiting my profile! Have a great day! 😊
